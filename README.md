@@ -12,8 +12,5 @@ Com a aplicação dessas medidas, espera-se proporcionar mais segurança, bem-es
 Lider: Camila
 Participantes: Lucas Rafael, Raissa, Bianka, Samuel
 
-## Trabalho
-
-
 ## Apresentação
 https://canva.link/icj3qimpt4cohxe
