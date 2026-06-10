@@ -10,7 +10,7 @@ Essas situações podem gerar riscos de acidentes, proliferação de insetos e p
 Com a aplicação dessas medidas, espera-se proporcionar mais segurança, bem-estar e qualidade ao ambiente escolar, contribuindo também para a preservação e valorização das áreas verdes da escola.
 
 Lider: Camila
-Participantes: Lucas Rafael, Raissa, Bianka, Samuel
+Membros: Lucas Rafael, Raissa, Bianka, Samuel
 
 ## Apresentação
 https://canva.link/icj3qimpt4cohxe
